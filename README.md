@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @HaiseSasakix
+- 👀 I’m interested in Making Games and Script
+- 🌱 I’m currently learning How to make a Game  
+- 📫 How to reach me (nini2night4life@gmail.com)
